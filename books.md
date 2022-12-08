@@ -5,3 +5,6 @@ https://ebin.pub/four-thousand-weeks-time-management-for-mortals-0374159122-9780
 
 
 https://ebin.pub/systems-analysis-and-design-12nbsped-0357117816-9780357117811.html
+
+
+https://ebin.pub/artificial-intelligence-a-modern-approach-4nbsped-2019047498-9780134610993-0134610997.html
